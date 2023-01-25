@@ -1,8 +1,6 @@
 # Hello, geeks! 👋
 
-I am _Niharika Bora_. I have strong media and communication professional with a Bachelor of Technology focused in Computer Science and engineering.
-⚡ I am involved in a lot of *organizational works* in college related to clubs, hackathons, fests and workshops and helped in building many communities from scratch.
-
+_Niharika Bora_ here. I have a solid background in media and communications and a Bachelor of Technology with a computer science and engineering concentration. In college, I am heavily involved in *organisational works* connected to clubs, hackathons, fests, and seminars. I have also assisted in creating a number of communities from nothing.
 
 
 
