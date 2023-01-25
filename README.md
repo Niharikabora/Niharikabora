@@ -5,17 +5,17 @@ I am _Niharika Bora_. I have strong media and communication professional with a 
 
 
 
-### 🌱 What do I do and What have I done? 
+
 
 ### ⚡ One line that describes me best? 
-An ambitious girl who loves to cook fries, day dream at nights and sometime codes too.😉😉
+ A girl attempting to make sense of things who loves to cook fries, day dream at nights and sometime codes too.😉😉
 
 ### 📫 How to reach me?
-- [Email](niharikabora912@gmail.com) 
+- [Instagram](https://www.instagram.com/stories/niharikabora9125/3022875844972326014/)
 - [LinkedIn](https://www.linkedin.com/in/niharika-bora-06445819a/) 
 
 
-You can ask me anything (within reason). I am looking forward to absorb knowledge🧠,gain experience 🏭, collaborate🤝 and build amazing products 🏭for the world🌍!
+Any question is welcome (within reason). I'm excited to learn new things, get experience, work with others 🤝, and create incredible things for the world 🌍!.
 
 
 <p align="center"> 
