@@ -18,7 +18,7 @@ Any question is welcome (within reason). I'm excited to learn new things, get ex
 
 <p align="center"> 
   Visitors count<br>
-  <img src="https://profile-counter.glitch.me/garimasingh128/count.svg" />
+  <img src="https://profile-counter.glitch.me/Niharikabora/count.svg" />
 </p>
 
 <img src="stats.gif" width="90%"><br/><br/>
